@@ -1,5 +1,5 @@
-## Hi there 👋
+## Want to know a Fun Fact?
 
 <!--
-- ⚡ Fun fact: I'm INGENIOUS
+I'm INGENIOUS
 -->
