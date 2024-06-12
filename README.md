@@ -1,5 +1,2 @@
-## Want to know a Fun Fact?
+## Fun Fact: I'm Ingenious!
 
-<!--
-I'm INGENIOUS
--->
